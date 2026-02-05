@@ -12,5 +12,5 @@ Try opening your eyes without looking at anything, just with a blank stare,
 lost in the void. Light may be entering your eyes, but it is only when
 you project your attention here and there that you start seeing things.
 This is a motivated performance, which triggers eye movements and requires
-some effort. And after looking intensely for a while, we may even fail our
+some effort. And after looking intensely for a while, we may even feel our
 eyes strain and burn from all the effort.
